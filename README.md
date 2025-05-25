@@ -41,7 +41,7 @@ LinkedIn: Soojal Bhardwaj
 
 Portfolio: soojal-portfolio.vercel.app
 
-Email: soojalbhardwaj.official@gmail.com
+Email: soojal.bhardwaj.27@gmail.com
 
 
 😄 Pronouns: He/Him
